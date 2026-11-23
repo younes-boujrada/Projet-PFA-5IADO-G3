@@ -248,4 +248,3 @@ Réponse du groupe : Démonstration live complète (Jalon 2) : sur l'interface R
 Décision de la revue : poursuivre
 
 Commentaire de l’enseignant : [à compléter]
- 
